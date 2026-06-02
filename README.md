@@ -1,2 +1,2 @@
-# Trabalho-faculdade-20-quest-es
+# Trabalho-faculdade-20-questoes
 Trabalho faculdade
